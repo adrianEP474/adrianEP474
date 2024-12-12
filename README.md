@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Adrian 
 - 👀 I’m interested in CR7
 - 🌱 I’m currently learning about CR7
-- 💞️ I’m looking to collaborate on CR7
+- 💞️ I’m looking to collaborate with CR7
 - 📫 How to reach me CR7's goals
 - 😄 Pronouns: CR7
 - ⚡ Fun fact: big fan of CR7
